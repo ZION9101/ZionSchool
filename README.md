@@ -34,7 +34,7 @@ The school operates from a private building with 18 classrooms in good condition
 
 If you have any inquiries or need more information, feel free to reach out to us:
 
-- **Address**: Vill- Jogendrapur, P.O- Saraibil, Dist- Kokrajhar, P.S- Gossaigaon, Pin Code: 783350
+- **Address**: Vill- Jogendrapur, P.O- Saraibil, P.S- Gossaigaon Dist- Kokrajhar, Assam, Pin Code: 783350
 - **Phone**: +91 9101396461, 6901779132
 - **Email**: schoolzion66@gmail.com
 
